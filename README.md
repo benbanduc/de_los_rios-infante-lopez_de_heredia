@@ -1,1 +1,5 @@
-# de_los_rios-infante-lopez_de_heredia
+Entrega Nº1
+
+El mejor grupo del curso.
+
+**Nota 7, promedio 7**
